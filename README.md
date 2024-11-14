@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning levitation
 - 💞️ I’m looking to collaborate on ...
 - 📫 Reach me on Discord: @matro5877
-- 😄 Pronouns: she/her
+- 😄 Pronouns: 
 - ⚡ Fun fact: i ated caca
 
 <!---
