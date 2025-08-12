@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Matro
-- 👀 I’m interested in you
-- 🌱 I’m currently learning levitation with fujimoto sensei
-- 💞️ I’m looking to collaborate on nothing
+- 👀 I’m interested in 
+- 🌱 I’m currently 
+- 💞️ I’m looking to collaborate on 
 - 📫 Reach me on Discord: @matro5877
-- 😄 Pronouns: yeah
-- ⚡ Fun fact: fortnite
+- 😄 Pronouns: 
+- ⚡ Fun fact: friend inside me
